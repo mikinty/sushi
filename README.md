@@ -6,6 +6,10 @@ Mostly NYC but as I become more Mr. Worldwide I will add more recs here.
 
 I will also say, at some point this list will just be consensus. But I've also had bad experiences at some restaurants which were supposed to be very good. Those are omitted on purpose here and to spare negative energy spreading I will not say bad things about them.
 
+## The Idea
+
+As with anything, you can't just jump to the best of the best and expect ot understand everything. Yes there are diminishing returns and all, but even from personal experience, e.g. drinking $700 wine at the start of my wine journey, there are just so many details you miss, and it's better money and time spent starting from the beginning. Obviously you can still enjoy nice sushi without "understanding" it. It's just food after all. But I think it would be good to have some sort of progression to avoid getting jaded or missing out on the beautiful world of sushi.
+
 ## Entry Level
 
 We all gotta start somewhere. Most sushi here is not really considered omakase, and just variations of nigiri and handrolls. It doesn't mean it's not good! And they are way more wallet friendly.
