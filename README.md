@@ -23,6 +23,7 @@ In this category we start seeing the hot-spot of omakases, of meals you can get 
 
 * Tanoshi: Very authentic omakase, also BYOB
 * Thirteen Water: Chinese run but very well done
+* Shiki Omakase: One of the few places I recommend in this price range
 
 ## Very good
 
