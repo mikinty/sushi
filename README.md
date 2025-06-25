@@ -27,6 +27,7 @@ In this category we start seeing the hot-spot of omakases, of meals you can get 
 ## Very good
 
 * Sushi Amane: For the price, $250, this is my favorite omakase. Everything is very well done, more acidic rice. Chef Hayashi who used to be here sadly left end of 2024, but his uni rice was amazing.
+* Sushi Nakazawa: I think a step below Amane, but it's also $190. You get a large variety of fish, although because it's so commercialized now it feels like a conveyor belt. The rice here is _super salty_ for whatever reason, make sure to drink your electrolytes before and after I guess.
 * Sushi Zo: Sadly closed in NYC now, but they have other locations. This is where I had nodoguro for the first time and I loved it ever since. The chefs also constantly ice their hands to not warm the sushi while making it. And the chefs are super friendly.
 
 ## Top
