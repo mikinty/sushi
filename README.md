@@ -1,6 +1,6 @@
 # sushi
 
-From my personal experiences. There are more comprehensive lists online, but I'm not a full-time sushi reviewer (I would like to eat more if I could), and my wallet is not that deep. But sushi is something I use to motivate myself.
+From my personal experiences. There are more comprehensive lists online, but I'm not a full-time sushi reviewer (I would like to eat more if I could), and my wallet is not that deep. But sushi is something I use to motivate myself. For a more comprehensive list of sushi places and restaurant reviews in general, check out my [Yelp profile](https://www.yelp.com/user_details?userid=RTTMsplbxNb61fujtFz23g).
 
 Mostly NYC but as I become more Mr. Worldwide I will add more recs here. 
 
