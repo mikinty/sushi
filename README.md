@@ -36,5 +36,4 @@ In this category we start seeing the hot-spot of omakases, of meals you can get 
 * Yoshizumi: Undisputed the best sushi in the Bay Area, but also world class on its own. Super traditional, a LOT of food, and everything is very well-done.
 * Ginza Onodera: Really sad this place closed in NYC (they also have LA and Hawaii and in Ginza ofc), it was also the best lunch time deal when it existed. A lot of great chefs start their own sushiya after working at Ginza.
 * Icca: Great hospitality, beautiful glassware, great food, big portions.
-* Shion 69
 * Sushi Sho: rarity of cuts and uniqueness and history is done well. some of the rare cuts will set you back $40-60 a piece. the main menu is good but I fear it loses the uniqueness after the first time. also a better experience if you speak japanese.
