@@ -37,4 +37,4 @@ In this category we start seeing the hot-spot of omakases, of meals you can get 
 * Ginza Onodera: Really sad this place closed in NYC (they also have LA and Hawaii and in Ginza ofc), it was also the best lunch time deal when it existed. A lot of great chefs start their own sushiya after working at Ginza.
 * Icca: Great hospitality, beautiful glassware, great food, big portions.
 * Shion 69
-* Sushi Sho: best of the best, will also run your wallet down
+* Sushi Sho: rarity of cuts and uniqueness and history is done well. some of the rare cuts will set you back $40-60 a piece. the main menu is good but I fear it loses the uniqueness after the first time. also a better experience if you speak japanese.
